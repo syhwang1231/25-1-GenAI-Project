@@ -10,3 +10,5 @@
 <img width="80%" src="https://github.com/user-attachments/assets/c3700a93-c2e3-4782-9bcd-34f2315fd8ce"/>
 <img width="80%" src="https://github.com/user-attachments/assets/fb31cdf9-2462-44e4-9de3-1aeb1cab5e8e"/>
 <img width="80%" src="https://github.com/user-attachments/assets/57663679-c7db-447e-9707-6ea33eba5271"/>
+
+땡큐 이리메라 💅🎀
